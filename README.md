@@ -1,1 +1,3 @@
 # HL_20250522
+
+VectorCAST Activation Key : 41WXF-AQLQG-DHS7S-LDVPM-6VTNQ
